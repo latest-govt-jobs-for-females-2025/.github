@@ -10,6 +10,7 @@ This article highlights some of the latest government job opportunities availabl
 * **Sarkari Naukri and other Job Portals:** While these portals can be helpful, always cross-verify information with the official sources.
 * For Apply Now:- https://biharjobhelp.in/latest-jobs/
 * Join in Telegram Group :https://t.me/Targetjob12
+* Joi in Whatshap Group : https://whatsapp.com/channel/0029Vao354972WU09CKMKP0Y
 
 
 **Types of Government Jobs Commonly Available for Women:**
